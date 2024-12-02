@@ -14,6 +14,5 @@ HIS GITHUB (https://github.com/QuietBubblez)
 ![image](https://github.com/user-attachments/assets/559dfc86-e67f-4c18-a0a8-d01e060631f0)
 
 ![{791EFE05-F8C6-4399-A951-892A4C91458C}](https://github.com/user-attachments/assets/facbd9a0-f13a-4e65-8f5d-0d705a74a84a)![image](https://github.com/user-attachments/assets/da97a3df-f663-4378-b585-b36c214f8e6a)
-![image](https://github.com/user-attachments/assets/ab9edafe-2068-42e2-b8a6-fea809e7f4c9)
-
+![image](https://github.com/user-attachments/assets/a57db9c9-6426-4383-92c3-34888b4bf86c)
 
