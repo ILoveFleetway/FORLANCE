@@ -13,7 +13,6 @@ HIS GITHUB (https://github.com/QuietBubblez)
 
 
 
-![image](https://github.com/user-attachments/assets/395a26be-f253-43d3-abcb-cebbb63b2df0)
 
 
 
