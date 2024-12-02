@@ -11,8 +11,7 @@ HIS GITHUB (https://github.com/QuietBubblez)
 ![image](https://github.com/user-attachments/assets/901e6bd9-d8a8-434a-8c71-78ae89e1536a)
 ![image](https://github.com/user-attachments/assets/128d2115-d47d-41a8-890a-3688ec8c9a34)
 
-![image](https://github.com/user-attachments/assets/79d9ce7f-0517-4cf3-ad69-d55c8bb194c1)
-
+![image](https://github.com/user-attachments/assets/dd1faa4d-8707-4dec-a5bc-d5d78a6442f9)
 
 
 
