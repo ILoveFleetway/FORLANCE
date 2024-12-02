@@ -3,7 +3,7 @@ this is for my online dad and my bestest and closest friend
 
 HIS GITHUB (https://github.com/QuietBubblez)
 
-
+![image](https://github.com/user-attachments/assets/ab9edafe-2068-42e2-b8a6-fea809e7f4c9)
 ![image](https://github.com/user-attachments/assets/06d12266-496b-4567-addf-131d2e87903f)
 ![image](https://github.com/user-attachments/assets/e9c2ba89-fb2a-4aa9-9728-69ebd3ba6f44)
 ![image](https://github.com/user-attachments/assets/01ec78ae-ef82-4466-bdb5-d6c4061bba8a)
